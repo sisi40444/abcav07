@@ -20,4 +20,4 @@
 结语  
 日本AV在线观看平台不断优化功能与服务，让观众能够便捷、安全、高效地获取所需内容。选择一个正规、稳定的平台，不仅可以尽情享受影片本身，也是一种高品质生活方式的体现。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav07 )</span>
